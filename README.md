@@ -5,26 +5,7 @@ fggfg
 jhhxdff
 fggg
 ghhhg
-rfdgsfn arrtrtrknn,dssdsddssdadadff
-dgsfsf<dff
-,mnknmnmssd
-dgfgghggfhyvybvb<asddsdasda
-sda
-
-sda
-ds
-daD
-DS
-SD
-SAD
-SADD
-F
-DFFD
-FD
-FDS
-DF
-DF
-Dfsgfggh
+rfdgsfn arrtrtrknn,dsfsgfggh
 tezgfsgfdsdd
 sdfsdf
 
